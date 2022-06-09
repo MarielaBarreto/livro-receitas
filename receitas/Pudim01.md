@@ -17,6 +17,3 @@
 **3.** Logo em seguida, bata por 20 minutos.
 
 **4.** Despeje na forma caramelizada e coloque no forno preaquecido, em banho-maria, a 180 graus Celsius.
-
-
-
